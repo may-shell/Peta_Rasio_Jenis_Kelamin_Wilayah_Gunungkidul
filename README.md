@@ -1,0 +1,1 @@
+# Peta_Rasio_Jenis_Kelamin_Wilayah_Gunungkidul
